@@ -14,7 +14,7 @@ If you don't see something that fits you, email me directly and mention that you
 Cheers,
 
 J. Daniel
-IT Recruiter
-Kforce Technology - Addison, TX
+
+IT Recruiter | Kforce Technology - Addison, TX
 
 jdaniel2@kforce.com
